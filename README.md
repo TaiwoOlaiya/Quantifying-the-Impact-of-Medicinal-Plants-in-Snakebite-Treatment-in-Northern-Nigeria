@@ -1,0 +1,1 @@
+This project delivers a scientifically grounded, data-driven insights report that highlights the effectiveness, accessibility, and socio-cultural significance of traditional medicinal plants used to neutralize snake venom in Northern Nigeria.
